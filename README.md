@@ -1,0 +1,1 @@
+# telefoneestragado.exe
